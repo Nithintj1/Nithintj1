@@ -1,5 +1,5 @@
 
-# Hi, I'm NIthin TJ! 👋
+# Hi, I'm Nithin TJ! 👋
 
 
 ## 🚀 About Me
